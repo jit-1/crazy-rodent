@@ -1,1 +1,1 @@
-Its a very bad bad name.
+Its a very good name.
